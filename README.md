@@ -1,2 +1,3 @@
 # khanTheLegend
 For class lesson
+Ask me anything. I will never regret...
